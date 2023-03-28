@@ -1,1 +1,0 @@
-# Repositorio para documentos de escuelas
